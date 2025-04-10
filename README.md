@@ -1,10 +1,17 @@
 
 # Hi there, I'm Gilang! 👋
 
-Dare to jump into the crypto world for a change financial~
+Dare to jump into the crypto world for a change financial~  
+
+
 🎗University Open Pekanbaru
+
+
 🧑‍💻System Information
+
 Daily Tasks :
+
+
 Streamer Gaming | Writing | Politics
 
 
