@@ -1,15 +1,11 @@
 
 # Hi there, I'm Gilang! 👋
-
+When I'm stressed, I usually force myself to create a website or read and yeah
 Dare to jump into the crypto world for a change financial~  
-
 
 🎗University Open Pekanbaru
 
-
 🧑‍💻System Information
-
-Daily Tasks :
 
 
 Streamer Gaming | Writing | Politics
