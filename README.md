@@ -1,7 +1,7 @@
 
 # Hi there, I'm Gilang! 👋
 When I'm stressed, I usually force myself to create a website or read and yeah
-Dare to jump into the crypto world for a change financial~  
+Dare to jump into the crypto world for a change financial for futures~  
 
 🎗University Open Pekanbaru
 
